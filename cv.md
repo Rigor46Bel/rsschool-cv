@@ -3,7 +3,7 @@
 ### Information
 - Phone: +1111111111
 - E-mail: sgasg@gmail.com
-- Telegram: @sgasg
+- Telegram: @qefgasg
 ## Languages:
 - English - Intermediate
 -  Russian - Native
